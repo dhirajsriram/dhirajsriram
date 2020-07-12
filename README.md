@@ -1,1 +1,1 @@
-﻿![dhirajsriram](/profile.gif)
+﻿![dhirajsriram](/dhirajsriram/profile.gif)
