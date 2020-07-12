@@ -1,1 +1,1 @@
-﻿![dhirajsriram](https://raw.githubusercontent.com/dhirajsriram/dhirajsriram/master/profile.gif)
+﻿![dhirajsriram](https://raw.githubusercontent.com/dhirajsriram/dhirajsriram/master/profile.gif | width=1000)
